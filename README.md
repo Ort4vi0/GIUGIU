@@ -1,1 +1,1 @@
-# Pega na minha BILOLA
+# Não encoste na minha GIUGIUBA. Ass.: Otávio (LUCKYHEAD-PEPINO)
